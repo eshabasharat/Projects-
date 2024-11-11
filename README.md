@@ -1,2 +1,2 @@
-# Projects
+# Projects/Assignments 
 Projects Completed at NAIT 
